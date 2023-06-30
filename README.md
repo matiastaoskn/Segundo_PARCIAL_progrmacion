@@ -1,0 +1,2 @@
+# Segundo_PARCIAL_progrmacion
+Segundo_PARCIAL_programacio
